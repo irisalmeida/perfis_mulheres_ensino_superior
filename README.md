@@ -4,5 +4,5 @@ A premissa do nosso projeto evidenciou-se a partir da necessidade de compreender
 
 Confira nosso artigo:
 
-https: //medium.com/@julianajesusoliveira.jjo/mulheres-no-ensino-superior-na-%C3%A1rea-de-tecnologia-quem-s%C3%A3o-elas-8670b49fc9b9
+https://medium.com/@julianajesusoliveira.jjo/mulheres-no-ensino-superior-na-%C3%A1rea-de-tecnologia-quem-s%C3%A3o-elas-8670b49fc9b9
 
